@@ -1,1 +1,1 @@
-https://github.com/danechkadovgan293-BYD/IP-zadanie-2
+https://danechkadovgan293-byd.github.io/IP-zadanie-2/
